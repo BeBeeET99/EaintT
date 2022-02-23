@@ -1,2 +1,0 @@
-# EaintT
-style2022
